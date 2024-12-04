@@ -5,3 +5,7 @@
 ## The Right Path
 
 **"O my Lord, as powerful as fire, O omnipotent one, now I offer You all obeisances, falling on the ground at Your feet. O my Lord, please lead me on the right path to reach You, and since You know all that I have done in the past, please free me from the reactions to my past sins so that there will be no hindrance to my progress."** (Śrī Īśopaniṣad 18)
+
+## The Goal 
+
+**"In this material world, to render service to the lotus feet of Govinda, the cause of all causes, and to see Him everywhere, is the only goal of life. This much alone is the ultimate goal of human life, as explained by all the revealed scriptures."** (ŚB 7.7.55)
